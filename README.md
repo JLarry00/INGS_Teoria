@@ -1,1 +1,0 @@
-# INGS_Teoria
